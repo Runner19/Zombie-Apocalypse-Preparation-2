@@ -1,0 +1,2 @@
+# Zombie-Apocalypse-Preparation-2
+The unpredictable and  the mysterious Zombie Apocalypse has broke out in  the city. People are fighting the dangerous and ruthless zombies, trying to save their lives. In this extreme situation, our brave warriors carry out a rescue operation in an attempt to help the dwellers of the country. They deliver survival kits to each and every person residing in the city on a helicopter. But unfortunately, noone is able to do this task properly. So the millitary has chosen us to perform this task
